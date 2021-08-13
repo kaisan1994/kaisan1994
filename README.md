@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kaisan1994
+- 👀 I’m interested in coding, gaming and cats!
+- 🌱 I’m currently learning to be a better programmer
+- 📫 How to reach me - you may contact me through email hosan1207@gmail.com
